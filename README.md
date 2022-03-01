@@ -2,9 +2,9 @@
 
 For my visual argument I want to create something that will bring more attention to the unique experience Black women have in America by highlighting those who have been victims of police involved murders. A famous hashtag called, Say Her Name, is the foundation and inspiration for my visual argument. I want to specifically include the faces of the women whose stories have made national headlines, such as Breonna Taylor. On the other hand, I will also include those whose stories did not get as much attention, but are still important nonetheless. 
 
-| Prospective assests | source |
+| prospective assests | source |  |
 |----|----|----|
-| Images of the Black women involved | news outlets |
+| Images of Black women involved | news outlets | 
 
 # Project 2: Visual Argument / Rhetorical Collage
 
